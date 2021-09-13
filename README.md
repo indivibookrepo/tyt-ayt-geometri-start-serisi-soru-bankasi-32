@@ -1,0 +1,1 @@
+# tyt-ayt-geometri-start-serisi-soru-bankasi-32
